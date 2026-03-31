@@ -28,13 +28,13 @@ Before mastering system automation, I built a career in high-stakes retail and p
 - **Marketing & Procurement Executive:** Managed project tenders and contractor negotiations for Meranti Marshal Sdn Bhd.
 - **Outlet Manager & Head Chef:** Overseaw daily operations and inventory optimization for Sushi House Metrocity.
 - **Shift Manager & Advanced Coffee Master:** Led teams at Starbucks Coffee Malaysia, specializing in brewing theory and financial reporting.
-- **Precision Focused:** From managing CIDB-registered contractors to executing a 30-second espresso pull, I value **consistency and technical accuracy.**
 
 ---
 
 ## 🎧 The "Kebabom" Vibe
 > *"Hate crowded places, love the trance scene."*
-- **Current Goal:** Attending **UnKonscious (UNK) 2026** in Thailand 🇹🇭.
+- **Latest Experience:** **UnKonscious (UNK) 2026** in Thailand (February 2026) 🇹🇭.
+- **Current Goal:** Hunting for the next massive 140 BPM festival lineup.
 - **Top Labels:** FSOE, VII, Pure Trance.
 
 ## 📫 Connect with Me
